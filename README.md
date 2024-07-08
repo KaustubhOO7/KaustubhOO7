@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **sharma.kaustubh.05@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1e5Yjl2j_1EtCrY6sxVqffcHpUSovm7MR/view?usp=drive_link)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1HLtZRtSs3U9LBjbgt78aILG5JpfvF7DY/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
