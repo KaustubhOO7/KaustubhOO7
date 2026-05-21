@@ -14,9 +14,9 @@
 
 - 💬 Ask me about **Java, HTML, CSS and Spring-Boot**
 
-- 📫 How to reach me **sharma.kaustubh.05@gmail.com**
+- 📫 How to reach me **sharma.kaustubh.777@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1TwdboNmvMf2Ool9EJnWUg3BkvnQjx8DQ/view?usp=drivesdk)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1ta8RxRGdXVmwgyz5QYiASzc67jDYJrkY/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
